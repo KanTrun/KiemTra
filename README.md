@@ -1,2 +1,2 @@
 # KiemTra
-Cuộc sống đau buồn lắm bạn ơi
+Cuộc sống đau buồn lắm bạn 
